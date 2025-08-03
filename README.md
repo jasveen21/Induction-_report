@@ -16,4 +16,4 @@
 ## I am  honored to be a part of this prestigious moment that reflects the dedication and hard work of our respected faculty, visionary leaders, and enthusiastic students.
  ## ਮੈਨੂੰ ਇਸ ਮਾਣਯੋਗ ਪਲ ਦਾ ਹਿੱਸਾ ਬਣਨ ’ਤੇ ਮਾਣ ਹੈ, ਜੋ ਸਾਡੇ ਸਨਮਾਨਯੋਗ ਅਧਿਆਪਕਾਂ, ਦੂਰਦਰਸ਼ੀ ਨੇਤਾਵਾਂ ਅਤੇ ਉਤਸ਼ਾਹੀ ਵਿਦਿਆਰਥੀਆਂ ਦੀ ਸਮਰਪਣ ਭਾਵਨਾ ਅਤੇ ਮਹਨਤ ਨੂੰ ਦਰਸਾਉਂਦਾ ਹੈ।
 
-
+## My first day at GNDEC started with all the CSE and IT students sitting in college auditorium. The host gives us such a wounderful speech in a peacful voice.
