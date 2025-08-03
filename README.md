@@ -9,6 +9,6 @@
 # Tea and snacks at College gurdwara sahib from 9:30 am to 10:00 am.
 ![tea and snacks gndec ](https://github.com/user-attachments/assets/58c28d55-35cb-48dd-a861-a2fbad430056)
 ## I feel blessed that our college not only promotes academic excellence but also values spiritual growth by organizing such humble services in the Gurdwara Sahib.
-## 
+## ਮੇਰਾ ਕਾਲਜ ਨਾ ਸਿਰਫ ਅਕਾਦਮਿਕਤਾ ਵਿਚ ਅੱਗੇ ਹੈ, ਸਗੋਂ ਆਤਮਕ ਵਿਕਾਸ ਅਤੇ ਗੁਰੂਮਤ ਸਿਧਾਂਤਾਂ ਨੂੰ ਵੀ ਵਧਾਵਾ ਦੇਂਦਾ ਹੈ, ਜਿਸਦਾ ਸਰੂਪ ਅੱਜ ਦੀ ਸੇਵਾ ਰਾਹੀਂ ਸਾਫ਼ ਦਿਸਦਾ ਹੈ।
 
 
