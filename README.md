@@ -1,5 +1,5 @@
 # Induction-_report
-# Day-1:
+# Day-1:-
 # Shabad Kirtan at College gurdwara sahib from 8:30 am to 9:30 am.
 ![path gndec 2 ](https://github.com/user-attachments/assets/2f7f234d-9532-41b4-a7b5-91b180a30e58) 
 ## Today, I am blessed to be in the divine presence of Guru Sahib and to enperience the soothing vibrations of Shabad Kirtan that uplift my soul.
@@ -20,3 +20,7 @@
 ![Er  rakesh kumar gndec ](https://github.com/user-attachments/assets/4d9f6935-96ec-4e55-9f54-78ef052274b8)
 ## Next speech is given by Er. Ravinder Garg. He is cheif Engineer in Municipal corporation,ludhiana. I am proud to be in the presence of a knowledgeable and inspiring Chief Engineer. Today, whose technical expertise and leadership serve as a role model for everyone .
 ![Er   ravinder garg gndec ](https://github.com/user-attachments/assets/7d66930b-4c5a-41b4-9326-06c9b6ee1725)
+
+
+# Day-2:-
+## Firstly, I went to the college Gurdwara for seeking blessings so that every step forward is filled with positivity,wisdom,grace and purpose.
