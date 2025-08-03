@@ -11,4 +11,9 @@
 ## I feel blessed that our college not only promotes academic excellence but also values spiritual growth by organizing such humble services in the Gurdwara Sahib.
 ## ਮੇਰਾ ਕਾਲਜ ਨਾ ਸਿਰਫ ਅਕਾਦਮਿਕਤਾ ਵਿਚ ਅੱਗੇ ਹੈ, ਸਗੋਂ ਆਤਮਕ ਵਿਕਾਸ ਅਤੇ ਗੁਰੂਮਤ ਸਿਧਾਂਤਾਂ ਨੂੰ ਵੀ ਵਧਾਵਾ ਦੇਂਦਾ ਹੈ, ਜਿਸਦਾ ਸਰੂਪ ਅੱਜ ਦੀ ਸੇਵਾ ਰਾਹੀਂ ਸਾਫ਼ ਦਿਸਦਾ ਹੈ।
 
+# Inaugural ceremony at college Auditorium from 10:00 am to onwards.
+![inaugration ceremony gndec ](https://github.com/user-attachments/assets/ccc0f3fb-8c85-49a5-9cb1-68d07d92338b)
+## I am  honored to be a part of this prestigious moment that reflects the dedication and hard work of our respected faculty, visionary leaders, and enthusiastic students.
+ ## ਮੈਨੂੰ ਇਸ ਮਾਣਯੋਗ ਪਲ ਦਾ ਹਿੱਸਾ ਬਣਨ ’ਤੇ ਮਾਣ ਹੈ, ਜੋ ਸਾਡੇ ਸਨਮਾਨਯੋਗ ਅਧਿਆਪਕਾਂ, ਦੂਰਦਰਸ਼ੀ ਨੇਤਾਵਾਂ ਅਤੇ ਉਤਸ਼ਾਹੀ ਵਿਦਿਆਰਥੀਆਂ ਦੀ ਸਮਰਪਣ ਭਾਵਨਾ ਅਤੇ ਮਹਨਤ ਨੂੰ ਦਰਸਾਉਂਦਾ ਹੈ।
+
 
