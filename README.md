@@ -19,7 +19,7 @@
 ## My first day at GNDEC started with all the CSE and IT students sitting in college auditorium. The host gives us such a wounderful speech in a peacful voice. To make an event successful and beautiful, a good host is very important and today's host has fulfilled that role wonderfully. She is such a nice guy. Our Principal Dr. Sehijpal Singh highlighted GNDEC's academic strengths andthe importantance of embracing opportunities during college life. Next, our cheif guest Er.Rakesh Kumar. He is aluminy of 1991 batch. Now he is serving as ADC, Ludhiana. He sharing their inspiring journey and encouraging students to grow with skills and believe in yourself.
 ![Er  rakesh kumar gndec ](https://github.com/user-attachments/assets/4d9f6935-96ec-4e55-9f54-78ef052274b8)
 ## Next speech is given by Er. Ravinder Garg. He is cheif Engineer in Municipal corporation,ludhiana. I am proud to be in the presence of a knowledgeable and inspiring Chief Engineer. Today, whose technical expertise and leadership serve as a role model for everyone .
-![Er   ravinder garg gndec ](https://github.com/user-attachments/assets/7d66930b-4c5a-41b4-9326-06c9b6ee1725)
+![Er   ravinder garg gndec ](https://github.com/user-attachments/assets/7d66930b-4c5a-41b4-9326-06c9b6ee1725)azx545 
 
 
 # Day-2:-
