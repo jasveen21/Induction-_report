@@ -23,5 +23,9 @@
 
 
 # Day-2:-
-## I reached college at 9:00 am. Firstly, I went to the college Gurdwara for seeking blessings so that every step forward is filled with positivity,wisdom,grace and purpose. T hen i enterd the class at 9:15am. Our english proficiency test started at 9:35am to 10:30am. The test is simple and easy. Then the maths proficiency test is started at 10:35am to 12:00pm. The math test is typical and quite difficult. The break is from 12:00pm to 1:00pm. Then all the students ordered to reached the autorium at sharp 1:00 pm . I reached their at time. The lecture is given by Dr. Arashdeep Singh .
+## I reached college at 9:00 am. Firstly, I went to the college Gurdwara for seeking blessings so that every step forward is filled with positivity,wisdom,grace and purpose. T hen i enterd the class at 9:15am. Our english proficiency test started at 9:35am to 10:30am. The test is simple and easy. Then the maths proficiency test is started at 10:35am to 12:00pm. The math test is typical and quite difficult. The break is from 12:00pm to 1:00pm. Then all the students ordered to reached the autorium at sharp 1:00 pm . I reached their at time. The lecture is given by Dr. Arashdeep Singh . He give his lecture on food items that what should or shouldn't eat. His knowledge and the clarity with which he share it is truly commendable. He didn't just inform us- he empowered us to make better choices. The dedication and passion he show toward spreading awarness about healthy food habits is truly inspiring. 
+![Arashdeep singh gndec ](https://github.com/user-attachments/assets/408086f3-ec8a-422b-b008-026669e2dcb4)
+
+## Then the Causmic Club session is started by our senior from 2:00pm to 3:00pm. The way they led the session showed true leadership patient,engaging and deeply meaningful.Thank you for sharing their wisdom.
+![senior gndec ](https://github.com/user-attachments/assets/f52a2bc4-eac5-458c-9f88-6cca2f2dc469)
  
