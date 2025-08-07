@@ -30,4 +30,7 @@
 ![senior gndec ](https://github.com/user-attachments/assets/f52a2bc4-eac5-458c-9f88-6cca2f2dc469)
 
 # Day-3:-
-## On 3rd day of the induction program, the expert lecture is given by Dr.Jaswinder Singh from 9am to 11am in the college auditorium.He is the incharge of IAPT. 
+## On 3rd day of the induction program, the expert lecture is given by Dr.Jaswinder Singh from 9am to 11am in the college auditorium.He is the incharge of IAPT. He is a symbol of dedication,leadership and humble excellence known for his calm demeanor and solution oriented mindset. As we begin this new journey with our incoming members,his presence today stands as a reminder of what true leadership look like. He gentle reminders to lead a life of gratitude,humility and purpose. His presence brings calm and his reflections inspire many of us to pause,reflect and tell us about the nature,God with deeper values. 
+![jaswinder GNDEC ](https://github.com/user-attachments/assets/5ace9c4f-6bbe-4496-aa44-6c671f57e524)
+![jaswinder GNDEC 2](https://github.com/user-attachments/assets/60607f9c-ab47-446e-bded-ce41768f9bbb)
+
