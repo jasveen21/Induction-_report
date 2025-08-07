@@ -30,4 +30,4 @@
 ![senior gndec ](https://github.com/user-attachments/assets/f52a2bc4-eac5-458c-9f88-6cca2f2dc469)
 
 # Day-3:-
-##On 3rd day of the induction program, the expert lecture is given by Dr.Jaswinder Singh from 9am to 11am in the college auditorium.He is the incharge of IAPT. 
+## On 3rd day of the induction program, the expert lecture is given by Dr.Jaswinder Singh from 9am to 11am in the college auditorium.He is the incharge of IAPT. 
